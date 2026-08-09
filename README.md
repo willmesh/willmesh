@@ -1,4 +1,5 @@
 
-<p align="center"><a href="https://gyazo.com/5d186d4703c9eb63070ac95a2d7fb984"><img src="https://i.gyazo.com/5d186d4703c9eb63070ac95a2d7fb984.png" alt="Image from Gyazo" width="300"/></a>
-
-ㅤ<p align="center">[rentry](https://rentry.co/dennouhimeca) + [ata](https://chaco.atabook.org)
+<p align="center"><a href="[https://files.catbox.moe/94i863.png]"><img src="https://files.catbox.moe/94i863.png" alt="me" width="250"/></a>
+<p align="center"><a href="[https://files.catbox.moe/7dbml4.gif]"><img src="https://files.catbox.moe/7dbml4.gif" alt="me" width="250"/></a>
+                                  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/dennouhimeca) + [ata](https://chaco.atabook.org)                                                                                                       
